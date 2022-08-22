@@ -1,6 +1,8 @@
 
 ## Dear Huma
 
+[You can configure your GitHub Pages site to publish](https://docs.github.com/en/pages/getting-started-with-github-pages/configuring-a-publishing-source-for-your-github-pages-site)
+
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/4uMLVRWwEg8" title="Young Man's Fancy (1952)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 [How Our Organization Improved Web Accessibility (Case Study)](https://www.smashingmagazine.com/2022/08/organization-improved-web-accessibility-case-study/)
