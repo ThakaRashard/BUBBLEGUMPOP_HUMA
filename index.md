@@ -1,7 +1,14 @@
 
 ## Dear Huma
+## BOBBY_HUTCHERSON_on_BLUENOTE_RECORDS
+<img src="https://i.discogs.com/F0xV3MGTyHFLsap517wPuq7Q4OJxCVsjiQGjmjGtrEI/rs:fit/g:sm/q:90/h:527/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTEwNzg0/OTM3LTE1ODU2NjE2/ODItNzQ2Mi5qcGVn.jpeg">
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/66CAtljsOdCUxSiEtiNy9h?utm_source=generator&theme=0" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/5nEJj9bjoarnzlS88NiWet?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <img src="https://i.discogs.com/CODnkL9tX-fKItFNSa-3lVuUo8Pl96XwDEDceuvYJMM/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTMzODA2/NjUtMTMyODEzNDg0/OS5qcGVn.jpeg">
+<img src="https://i.discogs.com/lzRORQJzuY4O5u84zHs6-zcw1hvIKJ47KPNx1i063s8/rs:fit/g:sm/q:90/h:600/w:598/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTEyMzQ5/Njk5LTE1MzM0ODU4/NzAtMTA4MS5qcGVn.jpeg">
+
+
 [You can configure your GitHub Pages site to publish](https://docs.github.com/en/pages/getting-started-with-github-pages/configuring-a-publishing-source-for-your-github-pages-site)
 
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/4uMLVRWwEg8" title="Young Man's Fancy (1952)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
