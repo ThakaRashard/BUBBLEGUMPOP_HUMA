@@ -1,6 +1,7 @@
 
 ## Dear Huma
-
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/5nEJj9bjoarnzlS88NiWet?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<img src="https://i.discogs.com/CODnkL9tX-fKItFNSa-3lVuUo8Pl96XwDEDceuvYJMM/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTMzODA2/NjUtMTMyODEzNDg0/OS5qcGVn.jpeg">
 [You can configure your GitHub Pages site to publish](https://docs.github.com/en/pages/getting-started-with-github-pages/configuring-a-publishing-source-for-your-github-pages-site)
 
 <iframe width="100%" height="480" src="https://www.youtube.com/embed/4uMLVRWwEg8" title="Young Man's Fancy (1952)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
