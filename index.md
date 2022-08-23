@@ -1,5 +1,24 @@
 
 ## Dear Huma
+
+<div class="twoPanelSpread">
+  <div class="row">
+    <div class="panelColumn">
+      <div class="leftColumn">
+<a href="https://www.youtube.com/watch?v=VcibKnRYMis"><img src="https://i.discogs.com/COv8kUBxww1EM4rM7CSnMNTzaZCh7uZXigy8UQSzrws/rs:fit/g:sm/q:90/h:500/w:500/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTIyNTAy/My0xMzU4ODI2NzQ3/LTI0ODguanBlZw.jpeg"></a>
+        </div>
+    </div>
+    <div class="panelColumn">
+      <div class="rightColumn">
+
+<a href="https://www.youtube.com/watch?v=VcibKnRYMis"><img src="https://i.discogs.com/J_VdMYbfF5PJtmwwLUmWG2MehjS7fygQI9XaS4Zw4E4/rs:fit/g:sm/q:90/h:501/w:590/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTIyNTAy/My0xMzU4ODI2OTQ5/LTk1MzIuanBlZw.jpeg"></a>
+         </div>
+    </div>
+  </div>
+</div>
+I have been having fun sharing my perspective on HiPHOP with you. The Beatjunkies made it to a level where their MixTAPES were distributed as albums in major venues like SamGoody and WalMart. Its hard to find them but I found a playlist on Spotify with highlights from the series.  [The YouTUBE copy Has songs missing from the CopyRight_Scanner muting things... Try to get a CD or a healthy rip to hear it the first time.Issa SoCal mixtape so there are a lot of UNDERGROUD_LOS_ANGELES_COUNTY_ARTiST that you can check out to smoothen your(our) comfortable assimilation here into normal society and away from darkweb pornography abuse. You can listen to this playlist as someone who never heard anysong like an Easterner, or you can listen like a local thats heard these songs at the skatebowl, local hiphop shops and outside barbeques with turntablist,, healthy graff heads... And someone walks past playing Usher "U_GOT_iT_BAD"... ironically I do, no woman to hold
+
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/playlist/6PTGiuLKKzodrdPFlJ6WHW?utm_source=generator" width="100%" height="300" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/20JilESvlybuZ3zYdMjtWb?utm_source=generator" width="100%" height="200" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <img src="https://cdn.kqed.org/wp-content/uploads/sites/35/2021/01/image_5608_2e-Jupiter-NASA-JPL-Caltech-SwRI-MSSS-David-Marriott-1020x628.jpg">
 
