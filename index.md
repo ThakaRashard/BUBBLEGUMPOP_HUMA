@@ -5,6 +5,23 @@
   <div class="row">
     <div class="panelColumn">
       <div class="leftColumn">
+<a href="https://open.spotify.com/album/1V3QiwyC0orSTlcTlzxX8A?si=kzK0B_t6QhOQdlSg6Ya-3Q"><img src="https://i.discogs.com/zxOb5-9eLN-d7phdCkMYItVvWXMYU4ROaWjh9jtJJX4/rs:fit/g:sm/q:90/h:600/w:600/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTE1ODYz/Ni0xMTk0NTMxMzU1/LmpwZWc.jpeg"></a>
+        </div>
+    </div>
+    <div class="panelColumn">
+      <div class="rightColumn">
+
+<a href="https://open.spotify.com/album/1V3QiwyC0orSTlcTlzxX8A?si=kzK0B_t6QhOQdlSg6Ya-3Q"><img src="https://www.rapmusicguide.com/amass/images/inventory/12815/Arsonists%20-%20As%20The%20World%20Burns%20rear.jpg"></a>
+         </div>
+    </div>
+  </div>
+</div>
+Underground_Vandal, The session, Blaze... are my favorite tracks... Listen start to end... EAST_COAST_UNDERGROUND_FLAVA
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/1V3QiwyC0orSTlcTlzxX8A?utm_source=generator" width="100%" height="280" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<div class="twoPanelSpread">
+  <div class="row">
+    <div class="panelColumn">
+      <div class="leftColumn">
 <a href="https://www.youtube.com/watch?v=VcibKnRYMis"><img src="https://i.discogs.com/COv8kUBxww1EM4rM7CSnMNTzaZCh7uZXigy8UQSzrws/rs:fit/g:sm/q:90/h:500/w:500/czM6Ly9kaXNjb2dz/LWRhdGFiYXNlLWlt/YWdlcy9SLTIyNTAy/My0xMzU4ODI2NzQ3/LTI0ODguanBlZw.jpeg"></a>
         </div>
     </div>
