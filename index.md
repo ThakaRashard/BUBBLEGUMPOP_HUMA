@@ -1,5 +1,7 @@
 
 ## Dear Huma
+<img src="https://avatars.githubusercontent.com/u/55198424?s=600&v=4">
+<img src="https://www.kindpng.com/picc/m/100-1000670_transparent-background-google-chrome-chromebook-logo-hd-png.png">
 <img src="https://www.training-hipaa.net/wp-content/uploads/2015/10/MicrosoftCertifiedProfessional.jpg">
 <iframe width="100%" height="360" src="https://www.youtube.com/embed/e1ngsIqhwVo" title="DJ Dr. Dre - Panic Zone (Roadium Swap Meet Mixtape)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 This is a gentle introduction to watching atmospheric_Mindbending anime... Everything controllerize never shared
