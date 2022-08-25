@@ -1,5 +1,6 @@
 
 ## Dear Huma
+<img src="https://1000logos.net/wp-content/uploads/2021/04/FreeBSD-logo-500x281.png">
 <img src="https://flyclipart.com/thumbs/redhat-logo-beige-1174644.png">
 <img src="https://avatars.githubusercontent.com/u/55198424?s=600&v=4">
 <img src="https://www.kindpng.com/picc/m/100-1000670_transparent-background-google-chrome-chromebook-logo-hd-png.png">
