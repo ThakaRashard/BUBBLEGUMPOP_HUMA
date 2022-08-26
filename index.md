@@ -1,5 +1,8 @@
 
 ## Dear Huma
+[Around The Artifacts Of Design Systems (Case Study)](https://www.smashingmagazine.com/2022/04/artifacts-design-systems/)
+[All Your Visual Media, One Powerful Platform](https://imgix.com)
+[Simplify Your Color Palette With CSS Color-Mix()](https://www.smashingmagazine.com/2022/06/simplify-color-palette-css-color-mix/)
 <iframe width="100%" height="370" src="https://www.youtube.com/embed/RjqGripHWTs" title="VINTAGE 1956 MAYBELINE MAKEUP COMMERCIAL - FEMALE WAR PAINT" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_TiNASHE/master/assets/images/screenshots/Screenshot%202022-08-26%207.42.52%20AM.png">
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/6cKgDS8oVcCNw9EjQf66er?utm_source=generator" width="100%" height="444" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
