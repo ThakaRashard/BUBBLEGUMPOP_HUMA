@@ -1,5 +1,7 @@
 
 ## Dear Huma
+[Lifeline Australia's mission is to ensure no Australian has to experience their darkest moments alone. Discover the story of one of the tireless 10,000+ crisis responders, and learn how Cisco is supporting this mission.](https://video.cisco.com/video/6188707116001)
+[Geographic Solutions manages a 5000% increase in traffic with Cisco UCS servers](https://video.cisco.com/video/6275553384001)
 ### This BayAREA_CLASSiCK is a BURNER
 #### GRAVEYARD_DJ_SET_SELECTiON
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/6BlTeJmZ4b5BPMTdw5CkZq?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
