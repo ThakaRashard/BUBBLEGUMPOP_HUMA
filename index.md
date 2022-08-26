@@ -1,5 +1,6 @@
 
 ## Dear Huma
+<iframe width="100%" height="370" src="https://www.youtube.com/embed/RjqGripHWTs" title="VINTAGE 1956 MAYBELINE MAKEUP COMMERCIAL - FEMALE WAR PAINT" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_TiNASHE/master/assets/images/screenshots/Screenshot%202022-08-26%207.42.52%20AM.png">
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/6cKgDS8oVcCNw9EjQf66er?utm_source=generator" width="100%" height="444" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 We been exploring content delivery solutions. Equipment is a headache so Im sharing this all in one [CiSCO_UCS](https://www.cisco.com/c/en/us/products/servers-unified-computing/index.html)... With all the problems we have with hacking, cisco is a great name to have behind us as we work up a new solution since youtube and soundcloud supppress us for our personal relationships, they mad about my polygamist heart, I just love women
