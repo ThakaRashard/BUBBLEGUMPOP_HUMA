@@ -5,6 +5,8 @@
 4 # UNiVERSE######################################POCAHANTAS##
 {% endhighlight %}
 
+[The Graphic Design & Web Development Industry...](https://www.first.edu/wp-content/uploads/2021/09/GDWD-UCG-copy.pdf)
+
 <IMG src="https://media.cdnws.com/_i/253556/2634/1366/35/doggystyle-snoop-doggy-dogg-cassette-audio-album-front-cover.jpeg">
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/track/31KK3pcPclmIt087tPuwMr?utm_source=generator&theme=0" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
