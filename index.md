@@ -5,6 +5,7 @@
 4 # UNiVERSE######################################POCAHANTAS##
 {% endhighlight %}
 
+<img src="https://www.graff-city.com/images/krink-k-73-p369-765_image.jpg" alt="Huma, lets tag ma">
 
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_HUMA/master/assets/images/screenshots/Screenshot%202022-08-28%209.38.00%20AM.png">
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_HUMA/master/assets/images/screenshots/Screenshot%202022-08-28%209.37.39%20AM.png">
