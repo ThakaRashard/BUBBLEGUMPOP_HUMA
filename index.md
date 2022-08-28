@@ -5,6 +5,10 @@
 4 # UNiVERSE######################################POCAHANTAS##
 {% endhighlight %}
 
+
+## Dear Huma, check out some branding iDeaS
+
+<IMG src="https://mir-s3-cdn-cf.behance.net/project_modules/1400_opt_1/5775ad78797867.5caf3a335a0f7.jpg" alt="Muna, our family artstyle is influencing so many people but we are being supressed more and more because of the prostitution... I wonder if this designer has genital contact... Its so personal I wont ask you and leave those tele_higherself_message_things thats not healthy online unless given permission" >
 <img src="https://www.graff-city.com/images/krink-k-73-p369-765_image.jpg" alt="Huma, lets tag ma">
 
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_HUMA/master/assets/images/screenshots/Screenshot%202022-08-28%209.38.00%20AM.png">
