@@ -6,10 +6,10 @@
 {% endhighlight %}
 
 
-<img src="https://i1.wp.com/thebrandyblog.com/wp-content/uploads/2012/12/photo_03.jpg">
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_HUMA/master/assets/images/screenshots/Screenshot%202022-08-28%209.38.00%20AM.png">
 <img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_HUMA/master/assets/images/screenshots/Screenshot%202022-08-28%209.37.39%20AM.png">
 
+<img src="https://i1.wp.com/thebrandyblog.com/wp-content/uploads/2012/12/photo_03.jpg">
 
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/41PwFUEt9XE3Cz0H8RA7vU?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
