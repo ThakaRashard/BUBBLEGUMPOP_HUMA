@@ -4,6 +4,15 @@
 3 # ANOTHER###########################################ROSE?
 4 # UNiVERSE######################################POCAHANTAS##
 {% endhighlight %}
+
+
+<img src="https://i1.wp.com/thebrandyblog.com/wp-content/uploads/2012/12/photo_03.jpg">
+<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_HUMA/master/assets/images/screenshots/Screenshot%202022-08-28%209.38.00%20AM.png">
+<img src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_HUMA/master/assets/images/screenshots/Screenshot%202022-08-28%209.37.39%20AM.png">
+
+
+<iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/41PwFUEt9XE3Cz0H8RA7vU?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/nHDyE954l4U" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe width="100%" height="350" src="https://www.youtube.com/embed/UoZJYTRZgpc" title="SEX TRAFFICKING IN ATLANTA GEORGIA❗️I ALMOST GOT KIDNAPPED❗️(story time😱🤬)ROSE POCAHONTAS" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
