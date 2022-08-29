@@ -1,11 +1,8 @@
- {% highlight python %}
-1 # HOLE_TO_ANOTHER_UNiVERSE##############################
-2 # TO################################################HUMA
-3 # ANOTHER###########################################ROSE?
-4 # UNiVERSE######################################POCAHANTAS##
-{% endhighlight %}
+## Here_Huma, lets print white on black stationary for outgoing physical communications, Mrs. Notary BeverlyHills_City_Clerk
 
+<IMG src="https://images.squarespace-cdn.com/content/v1/57d7429eb8a79b6151da1443/1563377816478-P4QPQNYL5ZEHQVPXOIAF/ke17ZwdGBToddI8pDm48kK60W-ob1oA2Fm-j4E_9NQB7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0kD6Ec8Uq9YczfrzwR7e2Mh5VMMOxnTbph8FXiclivDQnof69TlCeE0rAhj6HUpXkw/How+to+Print+White+Ink+In+House">
 
+[White Ink Printer + Ghost Toner HP LaserJet M452DW Review](https://designbylaney.com/2021/04/23/white-ink-printer-review/)
 <IMG src="https://media.vanityfair.com/photos/54284cd972bd5a4566c5a1fc/master/w_608,h_417,c_limit/image.jpg">
 
 ## Welcome to the Public Domain
@@ -2146,4 +2143,5 @@ Statistics revealed the reported cases of sexual and gender-based violence nearl
   The final elemenT.
   ```
 
->>>>>>> c3f5f937a168763fa77dd9a9990a105d3351f975
+
+>>>>>>> 886b72d0cbad4789c0c24dc669f95a571136d32a
