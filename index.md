@@ -1,3 +1,5 @@
+[Chrome Developer Tools Tutorial - How to Inspect Elements and Test CSS](https://www.youtube.com/watch?v=s0RI4IXKE_o)
+
 ## Here_Huma, lets print white on black stationary for outgoing physical communications, Mrs. Notary BeverlyHills_City_Clerk
 
 <IMG src="https://images.squarespace-cdn.com/content/v1/57d7429eb8a79b6151da1443/1563377816478-P4QPQNYL5ZEHQVPXOIAF/ke17ZwdGBToddI8pDm48kK60W-ob1oA2Fm-j4E_9NQB7gQa3H78H3Y0txjaiv_0fDoOvxcdMmMKkDsyUqMSsMWxHk725yiiHCCLfrh8O1z4YTzHvnKhyp6Da-NYroOW3ZGjoBKy3azqku80C789l0kD6Ec8Uq9YczfrzwR7e2Mh5VMMOxnTbph8FXiclivDQnof69TlCeE0rAhj6HUpXkw/How+to+Print+White+Ink+In+House">
