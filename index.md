@@ -6,6 +6,8 @@
 {% endhighlight %}
 
 
+<IMG src="https://media.vanityfair.com/photos/54284cd972bd5a4566c5a1fc/master/w_608,h_417,c_limit/image.jpg">
+
 ## Welcome to the Public Domain
 [Welcome to the Public Domain](https://fairuse.stanford.edu/overview/public-domain/welcome/)
 The term “public domain” refers to creative materials that are not protected by intellectual property laws such as copyright, trademark, or patent laws. The public owns these works, not an individual author or artist. Anyone can use a public domain work without obtaining permission, but no one can ever own it. An important wrinkle to understand about public domain material is that, while each work belongs to the public, collections of public domain works may be protected by copyright. If, for example, someone has collected public domain images in a book or on a website, the collection as a whole may be protectable even though individual images are not...[ReadMorE](https://fairuse.stanford.edu/overview/public-domain/welcome/) 
