@@ -1,5 +1,11 @@
 
 
+## WHY_YALL_PROSTiTUTED??
+### And crossed me out, "CHICKEN"!?
+
+<a href="https://www.youtube.com/watch?v=tDQnHh-MK6o"><IMG src="https://raw.githubusercontent.com/ThakaRashard/BUBBLEGUMPOP_MUNA/master/assets/images/VAYNE_WHY_YALL_PROSTiTUTED_MY_FAMILY_YOUR_REAL_NAME_JUSTIN_WHERE_IS_YOUR_GIRL_FRIEND_FROM_THOSE_ART_PARTIES_IN_ATLANTA_YOU_HATE_YOUR_SPOUSE_I_WANT_MY_BAD_CHICK_BIG_BOOTY_DANCE_STUDIO_HAREM_BACK_WHERE_IS_SARTU.PNG"></a>
+
+[Red Eye Mobb | Cleveland, Ohio - 2021 Meeting](https://www.youtube.com/watch?v=tM_iG1X02rA)
 <IMG src="https://www.pantone.com/media/wysiwyg/pantone-connect/homepage/02_Hero.png">
 <IMG src="https://cdn.shopify.com/s/files/1/1441/4380/products/image_e7f79f92-da9b-4bb4-8983-9667c0669d5b_700x700.jpg?v=1627909252">
 <IMG src="https://gregletson.files.wordpress.com/2017/11/547495.jpg">           
