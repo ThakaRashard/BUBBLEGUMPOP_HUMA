@@ -1,8 +1,24 @@
+[M is for Mutiny! History by Alphabet](https://www.simonandschuster.com.au/books/M-is-for-Mutiny!/John-Dickson/9780648529194)
 
+<IMG src="https://d28hgpri8am2if.cloudfront.net/book_images/onix/cvr9780648529194/m-is-for-mutiny-9780648529194_xlg.jpg">
+<IMG src="https://images.squarespace-cdn.com/content/v1/5260bb36e4b028ec9a1e2d2f/1506420743371-G540I3YO91K1KAQD6EMO/M+is+for+mutiny+A.jpg">
+<IMG src="https://images.squarespace-cdn.com/content/v1/5260bb36e4b028ec9a1e2d2f/1506419441606-SZSCYE28BYPH68Z2EP6N/m+is+for+mutiny+U.jpg?format=1500w">
+  
+[In the late 18th century, ragtag groups of Europeans started to arrive in Australia.](https://bluestonelane.com/cafes/venice-beach-523-rose-ave-los-angeles/)
+Most were convicts, some were soldiers, a few had just run out of choices. They blundered onto an ancient land that had been peopled for 60,000 years. They wanted to make it just like home. They cleared the land, they fenced it, they paved it and they put buildings on it. All the while, the country's first peoples watched on, bewildered by these clumsy immigrants and their mysterious ways...
+
+M is for Mutiny! History by Alphabet is a taste of the intriguing history of Australia and the many entry points for children to explore further. Why did Sir Joseph Banks hate bananas? Did anyone like William Bligh? Where is Yemmerrawanne?
+
+  <hr>
+  
 [Getting started with GitHub Pages You can set up a basic GitHub Pages site for yourself, your organization, or your project.](https://docs.github.com/en/pages/getting-started-with-github-pages)
 [Do You Mind (Official)](https://www.youtube.com/watch?v=_xGhK6qgPtM)
 [Young M.A "OOOUUU" (Official Video)](https://www.youtube.com/watch?v=gVf_4Ns3qLU)
 
+
+## Dear Huma, 
+Im dealing with challenging emotions but there will be no [mutiny](https://www.merriam-webster.com/dictionary/mutiny) on this ship mahNiGGuH
+<iframe width="100%" height="370" src="https://www.youtube.com/embed/29qvbeDA0iU" title="Keyshia Cole - I Should Have Cheated (BET Version) (Official Music Video)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7fWdfvsziNSTI46OCjCq9d?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
