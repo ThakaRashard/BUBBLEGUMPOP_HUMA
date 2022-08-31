@@ -1,10 +1,12 @@
+
 [Getting started with GitHub Pages You can set up a basic GitHub Pages site for yourself, your organization, or your project.](https://docs.github.com/en/pages/getting-started-with-github-pages)
 [Do You Mind (Official)](https://www.youtube.com/watch?v=_xGhK6qgPtM)
+[Young M.A "OOOUUU" (Official Video)](https://www.youtube.com/watch?v=gVf_4Ns3qLU)
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7fWdfvsziNSTI46OCjCq9d?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
-[Every Pantone Color of the Year | Interior Design](https://www.youtube.com/watch?v=ZtqsANAZYPk)
+[Every Pantone Color of the Year](https://www.youtube.com/watch?v=ZtqsANAZYPk)
 
 ## WHY_YALL_PROSTiTUTED??
 ### And crossed me out, "CHICKEN"!?
