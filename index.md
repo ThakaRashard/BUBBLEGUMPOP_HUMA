@@ -1,7 +1,7 @@
 
 ## Dear_Huma, Lets do graffiti... We can have hella fun with even one of these badboys! K71 is my favorite 8mm
 <img src="https://www.graff-city.com/images/krink-k-73-p369-765_image.jpg" alt="Huma, lets tag ma">
-<iframe width="400" height="375" src="https://www.youtube.com/embed/h21mLX_0VGI" title="Graffiti review with Wekman. KRINK k-75" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="400" style="border-radius:12px" height="375" src="https://www.youtube.com/embed/h21mLX_0VGI" title="Graffiti review with Wekman. KRINK k-75" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0mmjsFj4KUS9OqtfIJotlk?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <iframe style="border-radius:12px" width="100%" height="375" src="https://www.youtube.com/embed/GM92f-BUoow" title="Artifacts - Wrong Side Of Da Tracks" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <iframe style="border-radius:12px"  width="100%" height="375" src="https://www.youtube.com/embed/gg5cJu1Zcws" title="Meyhem Lauren - 'Got The Fever' NYC Graffiti New York City" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
