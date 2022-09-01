@@ -1,4 +1,6 @@
+<iframe width="100%" style="border-radius:12px"  height="150" src="https://www.youtube.com/embed/kLBNMhzn8VI" title="Immortal Technique - Toast to the Dead w/ lyrics HD" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+[MiSTER_RAVEN is an old mentor&fan&freind of mine from The SouthEast](https://forum.12ozprophet.com/profile/180767-misteraven/)
 ## Dear_Huma, Lets do graffiti... We can have hella fun with even one of these badboys! K71 is my favorite 8mm
 <img src="https://www.graff-city.com/images/krink-k-73-p369-765_image.jpg" alt="Huma, lets tag ma">
 <iframe width="400" style="border-radius:12px" height="375" src="https://www.youtube.com/embed/h21mLX_0VGI" title="Graffiti review with Wekman. KRINK k-75" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
