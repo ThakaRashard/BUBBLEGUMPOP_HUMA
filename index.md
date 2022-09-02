@@ -1,3 +1,5 @@
+
+<IMG src="https://img.beckett.com/images/items/7762189/marketplace/98948500/front.jpg">
 <iframe width="100%" style="border-radius:12px"  height="150" src="https://www.youtube.com/embed/kLBNMhzn8VI" title="Immortal Technique - Toast to the Dead w/ lyrics HD" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 [MiSTER_RAVEN is an old mentor&fan&freind of mine from The SouthEast](https://forum.12ozprophet.com/profile/180767-misteraven/)
