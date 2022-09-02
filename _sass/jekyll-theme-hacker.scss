@@ -40,16 +40,23 @@ img {
   width: 100%;
   column-span: all;
   border: 0px solid #c9ff23;
-  box-shadow: rgba(240, 46, 170, 0.4) 5px 5px, rgba(240, 46, 170, 0.3) 10px 10px, rgba(240, 46, 170, 0.2) 15px 15px, rgba(240, 46, 170, 0.1) 20px 20px, rgba(240, 46, 170, 0.05) 25px 25px;
+  background: linear-gradient(to left, #1e9600, #fff200, #ff0000); /* W3C, IE 10+/ Edge, Firefox 16+, Chrome 26+, Opera 12+, Safari 7+ */
+  /* box-shadow: rgba(240, 46, 170, 0.4) 0px 5px, rgba(240, 46, 170, 0.3) 0px 10px, rgba(240, 46, 170, 0.2) 0px 15px, rgba(240, 46, 170, 0.1) 0px 20px, rgba(240, 46, 170, 0.05) 0px 25px;
+  box-shadow: #1e9600 0px 5px, #fff200 0px 10px, #ff0000 0px 15px, rgba(240, 46, 170, 0.1) 0px 20px, rgba(240, 46, 170, 0.05) 0px 25px;
+  */
+  
+  box-shadow: #ff0000 0px 5px, #fff200 0px 10px, #fff200 0px 15px, #1e9600 0px 20px, #1e9600 0px 25px;
+
+
 
 }
 
 .container {
-  width: 90%;
+  width: 70%;
   max-width: $container-max-width;
   margin: 0 auto;
   padding: 0px;
-  border-left: #c9ff23;
+  border: 2px #c9ff23;
   /* ##ADDED##BOX_SHADOW 
   box-shadow: rgba(240, 46, 170, 0.4) 5px 5px, rgba(240, 46, 170, 0.3) 10px 10px, rgba(240, 46, 170, 0.2) 15px 15px, rgba(240, 46, 170, 0.1) 20px 20px, rgba(240, 46, 170, 0.05) 25px 25px;
 */
@@ -59,8 +66,8 @@ iframe {
   margin: auto;
   padding: auto;
   background-image: url("https://raw.githubusercontent.com/ThakaRashard/bubblegumpop/gh-pages/img/bd_iFRAME_HOLDiN_iMAGE.jpg");
-  border-left: #c9ff23;
-  box-shadow: rgba(240, 46, 170, 0.4) 5px 5px, rgba(240, 46, 170, 0.3) 10px 10px, rgba(240, 46, 170, 0.2) 15px 15px, rgba(240, 46, 170, 0.1) 20px 20px, rgba(240, 46, 170, 0.05) 25px 25px;
+  border: 2px #c9ff23;
+  box-shadow: #ff0000 0px 5px, #fff200 0px 10px, #fff200 0px 15px, #1e9600 0px 20px, #1e9600 0px 25px;
 
 }
 
