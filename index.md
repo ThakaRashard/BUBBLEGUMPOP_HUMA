@@ -1,3 +1,11 @@
+## Dates are easy, what do you do for work outside of the githubShit?
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/606313338&color=%235c7c42&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 20px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; "><a href="https://soundcloud.com/tycho" title="Tycho" target="_blank" style="color: #cccccc; text-decoration: none;">Tycho</a> · <a href="https://soundcloud.com/tycho/tycho_easy" title="Easy" target="_blank" style="color: #cccccc; text-decoration: none;">Easy</a></div>
+
+##HUMA_Resonance is my favorite track
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/498365070&color=%2336100f&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 20px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; "><a href="https://soundcloud.com/odesza" title="ODESZA" target="_blank" style="color: #cccccc; text-decoration: none;">ODESZA</a> · <a href="https://soundcloud.com/odesza/loyal" title="Loyal" target="_blank" style="color: #cccccc; text-decoration: none;">Loyal</a></div>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/3FZtDulD5KUnIxA9dM1v5M?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
 <a href="https://youtu.be/A85OQLelZuk"><IMG src="https://www.denofgeek.com/wp-content/uploads/2014/08/ranma-1-2-ranma-1-2-5254658-1024-768.jpg" alt="Huma, this story resonates well in this family"></a>
 
 [A girl is involuntarily engaged to a boy who turns female when hit with cold water and male when hit with hot.](https://www.imdb.com/title/tt0096686/)
