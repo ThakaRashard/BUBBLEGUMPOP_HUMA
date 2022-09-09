@@ -28,6 +28,79 @@
 
 What does it mean to squash commits in Git? Squashing is a way to rewrite your commit history; this action helps to clean up and simplify your commit history before sharing your work with team members. Squashing a commit in Git means that you are taking the changes from one commit and adding them to the Parent Commit... [ReadMore](https://www.git-tower.com/learn/git/faq/git-squash)
 <hr>
+
+## HUMA_CHECK_OUT_THiS_TUMBLR
+[ONLY_OLD_PHOTS_ON_TUMBLR](https://onlyoldphotography.tumblr.com/)
+
+#### ROBERT_CAPA_
+ERNEST_HEMMiNGWAY_and_SON_GREGORY_FiSHiNG
+<IMG src="https://64.media.tumblr.com/897c83ab7e6894f4ec69c7984182bc69/tumblr_mzrnurW7Sm1rw3fqbo1_1280.png" alt="Picture your kids like this... Healthy with a healthy man">
+
+# Greg Girard: 120 Days of Sodom, Tokyo, 1977
+<IMG src="https://64.media.tumblr.com/4c13b3137f447507af0264e1efed5686/e05dd9e0e36667f6-d6/s1280x1920/251a8e59cbbe7eebd54a33571c029ccb4fed4d9c.png">
+
+<hr>
+
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/V1Pl8CzNzCw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<hr>
+## Dear Huma, Im afraid for Latto She be in santa monica a lot, I dont think ill ever see a dollar my family or anthing ever again
+<p class="codepen" data-height="300" data-default-tab="html,result" data-slug-hash="BaxjNXy" data-editable="true" data-user="thakasartu" style="height: 300px; box-sizing: border-box; display: flex; align-items: center; justify-content: center; border: 2px solid; margin: 1em 0; padding: 1em;">
+  <span>See the Pen <a href="https://codepen.io/thakasartu/pen/BaxjNXy">
+  ##PAGE_CAPTURE WE_ARE_BEING_SUPRESSED_BY_THE_LIBRARY</a> by ThakaSartu (<a href="https://codepen.io/thakasartu">@thakasartu</a>)
+  on <a href="https://codepen.io">CodePen</a>.</span>
+</p>
+<script async src="https://cpwebassets.codepen.io/assets/embed/ei.js"></script>
+
+## Dear HuMa
+This got me stalked...
+### Severe acute respiratory syndrome coronavirus - Patent US
+### Do you recall when CoViD19 was called CoronaVirus? 
+ 
+ There is a patent for it and everything... I posted it on facebook. I hope I did not get the family prostituted...[ReadTheAbstract4ThePatentHere](https://appft.uspto.gov/netacgi/nph-Parser?Sect1=PTO1&Sect2=HITOFF&p=1&u=/netahtml/PTO/srchnum.html&r=1&f=G&l=50&d=PG01&s1=20060257852.PGNR.) Remember sars? The patent abstract call Sars-CoV-2 Coronavirus. Cov-2? Who da fuq numberin dem bitchis?!?!?!? 
+
+ [There is even a European patent for it I posted on Facebook and LinkediN](https://patentimages.storage.googleapis.com/1d/4e/4a/ac8914e765d645/EP3172319B1.pdf) and I saw Sartu with pimps an shit runnin boys, girls, and Vogue models and this dude started swinging a knife at me and I got attacked with cattle prods twice. You know they say if you talk too much you lose your family, and I work for JPL and lost everything about 3 weeks after starting. This place called Mori, an HR extension that has shitty benefits did my TAXeS&SHiT on boarding. The government did my federal one that gets you the NASA_badge. [SEE_THE_EUROPEAN_CORNAViRUS_PATENT](https://patentimages.storage.googleapis.com/1d/4e/4a/ac8914e765d645/EP3172319B1.pdf) That shit did not come from wuhan china and so many ppl are on that wuhan stay strong shit, but where they at. When I was at UCLA after them pimps hit me with Mustard Gas after seeing Coral, Sartu(normani), Erika, and Heather, my leg swole up like gout and then they sliced my ankle open to heal it and threw me out on the street I had to dodge organ harvesters like aHMUTHAFUCKA!!!! DiSABLED!!!!
+
+
+### This one directly from the US patent office!!!!
+ An outbreak of a virulent respiratory virus, now known as Severe Acute Respiratory Syndrome (SARS), was identified in Hong Kong, China and a growing number of countries around the world in 2003. The invention relates to nucleic acids and proteins from the SARS coronavirus. These nucleic acids and proteins can be used in the preparation and manufacture of vaccine formulations, diagnostic reagents, kits, etc. The invention also provides methods for treating SARS by administering small molecule antiviral compounds, as well as methods of identifying potent small molecules for the treatment of SARS...[SEE_IT_ALL_HERE](https://appft.uspto.gov/netacgi/nph-Parser?Sect1=PTO1&Sect2=HITOFF&p=1&u=/netahtml/PTO/srchnum.html&r=1&f=G&l=50&d=PG01&s1=20060257852.PGNR.)
+<IMG src="https://raw.githubusercontent.com/ThakaSartu/homeschool/main/img/SARD-CoV2_COViD19.png">
+<IMG src="https://pubchem.ncbi.nlm.nih.gov/periodic-table/Periodic_Table.png">
+
+<hr>
+
+# These people are lying!
+## Patently False: The Disinformation Over Coronavirus Patents
+It’s easy for the conspiracy-minded to show patents claiming the new coronavirus was an “inside job”, but it is apparently much harder for them to even glance at the first page of these patent applications[READ_THE_REST_OF_THE_LiE](https://www.mcgill.ca/oss/article/covid-19-pseudoscience/patently-false-disinformation-over-coronavirus-patents)
+
+[5 Priceless Pranks T.I. & The Harris Kids Pulled On Each Other #AloneTogether](youtube.com/watch?v=-okIVVZtUIw)
+
+[T.I. Has A Woman Over When Tiny Drops Off The Kids The Family Hustle](https://www.youtube.com/watch?v=nYnLcBYF4_I)
+
+<IMG src="https://i.insider.com/523b21bdecad04050b647577?width=1000&format=jpeg&auto=webp">
+<IMG src="https://pbs.twimg.com/media/DU4bwyEU8AAJd2Q.jpg">
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/72nHswSA1ycvthWo5XaUHw?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<IMG src="https://i0.wp.com/www.articlecats.com/wp-content/uploads/2015/09/headyweedpricemap-copy-copy-e1443725253101.png">
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3CcvahnsiArpTHYQEWV2Au?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+<hr>
+
+## What is Google Summer of Code? -- HUMA_IM_INTERESTED
+Google Summer of Code is a global, online program focused on bringing new contributors into open source software development. GSoC Contributors work with an open source organization on a 12+ week programming project under the guidance of mentors...[ReadMore](https://summerofcode.withgoogle.com/)
+## Keeping your skillset fresh as a developer
+Whether you’re committing 30 minutes or 3 hours a day to learning, consistency is key...[ReadMore](https://github.blog/2022-08-25-keeping-your-skillset-fresh-as-a-developer/) If there’s one thing that everyone agrees on in the fast-changing world of software, it’s that developers and other tech professionals need to be constantly learning in order to keep their skills fresh and relevant. On the one hand, that’s easier than ever with the wealth of resources available, from books to online classes to YouTube tutorials. There are more programming languages, database systems, cloud platforms, and other technologies than anyone could ever learn. So how do you decide what to spend your precious time learning? And how much time should you commit to learning new technologies? --Written_By_KLiNT
+## Huma, check these tracks out mayne
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5Rkbnhwkb6oiqq1HQcXirN?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3goLJ8aMxxW6GwFPjb6MVM?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/4VeCg1rkHHiu1utqoNNUhH?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5LQY9vHNDIiKnFMogpJdPz?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<hr>
+
+## Dear_Huma, I synced your fork
+
+I want you to [share the Github availability report](https://github.blog/2022-09-07-github-availability-report-august-2022/) with Tasha, Hayat, Iman, and Dance Mama. Serving blogs from pages will stop us from losing people in the dance community to suicide and prostitution when social media decides this is a great person to rape and finacially devestate all attached family!!! And for mo profit... even more for the dead males organ harvested penises... The women are long money the men are short money
+
+[GitHub Availability Report: August 2022](https://github.blog/2022-09-07-github-availability-report-august-2022/)
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/166945824&color=%232f1719&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe><div style="font-size: 10px; color: #cccccc;line-break: anywhere;word-break: normal;overflow: hidden;white-space: nowrap;text-overflow: ellipsis; font-family: Interstate,Lucida Grande,Lucida Sans Unicode,Lucida Sans,Garuda,Verdana,Tahoma,sans-serif;font-weight: 100;"><a href="https://soundcloud.com/odesza" title="ODESZA" target="_blank" style="color: #cccccc; text-decoration: none;">ODESZA</a> · <a href="https://soundcloud.com/odesza/its-only" title="It’s Only (feat. Zyra)" target="_blank" style="color: #cccccc; text-decoration: none;">It’s Only (feat. Zyra)</a></div>
 <iframe style="border-radius:0px" src="https://open.spotify.com/embed/album/5eKLb6aljErWJyIv7BgUlg?utm_source=generator" width="100%" height="300" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 ## ERiKA found this digging for funk musik during the ## BLOGGER_DAYS
@@ -2268,4 +2341,3 @@ Statistics revealed the reported cases of sexual and gender-based violence nearl
   ```
 
 
->>>>>>> 886b72d0cbad4789c0c24dc669f95a571136d32a
