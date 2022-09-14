@@ -57,6 +57,69 @@ ERNEST_HEMMiNGWAY_and_SON_GREGORY_FiSHiNG
 </p>
 <script async src="https://cpwebassets.codepen.io/assets/embed/ei.js"></script>
 
+## ሳቲዚ ጀብዱዚ ሙና ዐሪካ ላራ ከሊላ
+[Marriage Practices Among The Gidda Oromo,Northern Wollega, Ethiopia](http://www.njas.helsinki.fi/pdf-files/vol15num3/beyene.pdf)	by [Gemechu Beyene](https://www.researchgate.net/scientific-contributions/Gemechu-Beyene-36094326) & [Assefa Tolera](https://www.semanticscholar.org/author/Assefa-Tolera/114598861)
+<img src="https://www.rct.uk/sites/default/files/styles/rctr-scale-1300-500/public/collection-online/e/5/1032675-1622115262.jpg?itok=gaFb1-Qp">
+
+### Three Types of Oromo Marriage
+Marriage is one of the most important rituals in Oromo culture. The custom of marriage differs in various parts of the world and every civilization produces a marriage pattern appropriate to itself (Ludlow, 1965, cited in Gemechu & Assefa., 2006). Among the Oromo society also the type, name and ceremonies differ to some degree from place to place. Generally, there are three types of marriage among the Oormo.
+
+## Brief piece by Tigist Geme*.
+
+Marriage is one of the most important rituals in Oromo culture. The custom of marriage differs in various parts of the world and every civilization produces a marriage pattern appropriate to itself (Ludlow, 1965, cited in Gemechu & Assefa., 2006). Among the Oromo society also the type, name and ceremonies differ to some degree from place to place. Generally, there are three types of marriage among the Oromo.
+
+### a) Formal marriage
+
+This type of marriage has different names in different parts of Oromia: ‘kadhaa’ (Nuro,1989), or fuudha baal-tokkee (Hussen 2000) around Arsi, ‘cida’ (Lemmesa, 2007) around Showa, and ‘Naqataa’ (Gemetchu & Assefa, 2006) in Wallaga. ‘Kadhaa’ or ‘naqataa’ is the most typical and prevalent form of marriage where the ceremony starts at the moment when marriage is first thought of and even continues after the marriage is concluded (Gemetchu & Assefa, 2006).
+
+Traditionally, it is arranged by family and before the match takes place, they make sure that the girl’s family does not have members who are lepers, chawa-clan, crafts men such as tanner, potter etc. The groom’s parents research back seven generations to make sure that the families are not related by blood, to avoid haraamuu or incest taboo. Once this has been done, the boy’s parents then make contact with the girl’s parents through a mediator. The girl’s parents often impose conditions and the mediator will take the message to the boys parents. When the parents have reached an agreement, the man and woman get engaged (betrothed). The parent then set a wedding date and they meet all the wedding expenses (Nuro,1989, Gemechu & Assefa 2006).
+
+### b) Informal Marriage
+
+## i) Hawwii
+
+According to Gemechu & Assefa (2006), this mode of marriage occurs when the boy happens to remain qeerroo (bachelor) for several reasons. Either because he is not handsome, or he is from a family of low social status, and therefore cannot pay the dowry. The boy has no consent of the family of the girl to wait long and to meet the financial and social demands of the girl’s parents. Sometimes, the girl’s mother is involved in arranging marriage of her daughter through hawwee. It is common among poor people. Youngsters resort to this kind of marriage after a lot of period of courtship that the boy approaches whom he thinks can keep secret to act on a go-between. There are places where the boy and the girl with their company can mostly wait each other. She signs an agreement saying that she was not taken against her will and she will be taken to one of the boy’s relatives until his parent prepares feast for marriage (Gemechu & Assefa2006, Nuro,1989), and that her parents are solemnly informed about her safety by elders.
+
+## ii) Buttaa/Butii
+
+This type of marriage takes of the following two forms. The first is when the girl has consented she is induced to be abducted. The second is accomplished by compulsion without any prior knowledge of the abduction (unlike the first form) on the part of the girl (Gemechu & Assefa, 2006).
+
+As Gemechu and Assefa point it out in their co-authored article on the Western Macca Oromo Marriage Style, marriage by abduction is taken as option when:
+
+- 1) a boy falls in love and she is not aware at all.
+
+- 2) a girl’s parent is affriad that their daoughter might agree to the proposed marriage,they consprice with the would be husband to take her by force.
+
+- 3) a girl’s parent are unwilling to agree to the proposed marriage, abduction would be resorted by boy’s family to show that they have a power to take her by force evenif her parents refused (Gemechu & Assefa, 2006; Nuro, 1989).
+
+This informal marriage was also observable among the Salale before the government intervention and the customary law became renewed in a way committed to preserving women’s right and security.
+
+## iii) Aseennaa
+
+This type of marriage employs peaceful, but cunning means. According to Nuro (1989), when a girl could not get anybody who seeks her hand in marriage because she may be an ugly or her parent has an evil eye “as said to be” by the society, she chooses anyone whom she thinks would marry her. And she directly goes to his parent’s house. Gemechu & Assefa (2006) also explained that, for a women to remain unmarried into her twenties is incomprehensible, though, she must go beyond herself, called aseennaa. Therefore, when a girl is left unmarried or when her father wants to give her to some one whom she does not like, she chooses unmarried young man and runs a way to his house withought the knoweledge of the man mostly in the evening.
+
+## iv) Conditional marriage
+
+This type of marriage depends on the occurrence of certain incidents.
+
+# a) Dhaala
+
+Dhaala is a type of marriage between a women and a brother of a deceased husband or levirate (Gemechu & Assefa 2006). Among such a patrilineal community where marriage secures children to perpetuate the father’s line, it is usual for widow to be inherited by a brother of a deceased husband (Nuro,1989).
+
+# b) Mambeeto (manbeeto)
+
+Its conditionality is the death of one’s wife. The younger sister or relative of the late wife would be given to the widower as soon as the first wife dies (Nuro, 1989). It is known as manbeeto or mambeeto among Arsi. Among the Oromo of Tulama and Macca it is known as hirpha, literally, to ‘compensate’.
+
+————————-
+
+*Tigist Geme is formerly a lecturer at Addis Ababa University. This article is an excerpt from her thesis titled “Themes and Patterns of Traditional Oromo Marriage Counseling” </p>	
+
+
+
+<img src="https://ilr.law.uiowa.edu/print/volume-99-issue-3/how-to-lie-with-rape-statistics-americas-hidden-rape-crisis/">
+<img src="https://forum.12ozprophet.com/uploads/monthly_2020_04/image.png.14c87c06fc77f757887ae34cc3cd8be0.png">
+
+<hr>
 ## Dear HuMa
 This got me stalked...
 ### Severe acute respiratory syndrome coronavirus - Patent US
