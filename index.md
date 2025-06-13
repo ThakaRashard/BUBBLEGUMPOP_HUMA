@@ -1,3 +1,62 @@
+[![.github/workflows/ci.yaml](https://github.com/pages-themes/hacker/actions/workflows/ci.yaml/badge.svg)](https://github.com/pages-themes/hacker/actions/workflows/ci.yaml)
+
+
+# Dear_Huma
+I found a lot of comfort reading these verses in relation to our family issues. I hope you find comfort too! Keep your faith and while I know you know Habesha_Tribal_Language, IDK if you know Arabic like your sisters... We have healed so much! We miss you from channeling convos babe!
+
+# Quran: 4. Surat An-Nisa (The Women)
+
+```
+وَإِنْ خِفْتُمْ أَلَّا تُقْسِطُوا۟ فِى ٱلْيَتَـٰمَىٰ فَٱنكِحُوا۟ مَا طَابَ لَكُم مِّنَ ٱلنِّسَآءِ مَثْنَىٰ وَثُلَـٰثَ وَرُبَـٰعَ ۖ فَإِنْ خِفْتُمْ أَلَّا تَعْدِلُوا۟ فَوَٰحِدَةً أَوْ مَا مَلَكَتْ أَيْمَـٰنُكُمْ ۚ ذَٰلِكَ أَدْنَىٰٓ أَلَّا تَعُولُوا۟
+```
+```
+وَٱبْتَلُوا۟ ٱلْيَتَـٰمَىٰ حَتَّىٰٓ إِذَا بَلَغُوا۟ ٱلنِّكَاحَ فَإِنْ ءَانَسْتُم مِّنْهُمْ رُشْدًۭا فَٱدْفَعُوٓا۟ إِلَيْهِمْ أَمْوَٰلَهُمْ ۖ وَلَا تَأْكُلُوهَآ إِسْرَافًۭا وَبِدَارًا أَن يَكْبَرُوا۟ ۚ وَمَن كَانَ غَنِيًّۭا فَلْيَسْتَعْفِفْ ۖ وَمَن كَانَ فَقِيرًۭا فَلْيَأْكُلْ بِٱلْمَعْرُوفِ ۚ فَإِذَا دَفَعْتُمْ إِلَيْهِمْ أَمْوَٰلَهُمْ فَأَشْهِدُوا۟ عَلَيْهِمْ ۚ وَكَفَىٰ
+```
+
+Indeed, those who unjustly consume orphans’ wealth ˹in fact˺ consume nothing but fire into their bellies. And they will be burned in a blazing Hell!
+
+إِنَّ ٱلَّذِينَ يَأْكُلُونَ أَمْوَٰلَ ٱلْيَتَـٰمَىٰ ظُلْمًا إِنَّمَا يَأْكُلُونَ فِى بُطُونِهِمْ نَارًۭا ۖ وَسَيَصْلَوْنَ سَعِيرًۭا
+
+Give orphans their wealth ˹when they reach maturity˺, and do not exchange your worthless possessions for their valuables, nor cheat them by mixing their wealth with your own. For this would indeed be a great sin.
+
+If you fear you might fail to give orphan women their ˹due˺ rights ˹if you were to marry them˺, then marry other women of your choice—two, three, or four. But if you are afraid you will fail to maintain justice, then ˹content yourselves with˺ one1 or those ˹bondwomen˺ in your possession.2 This way you are less likely to commit injustice.
+
+Do not entrust the incapable ˹among your dependants˺ with your wealth which Allah has made a means of support for you—but feed and clothe them from it, and speak to them kindly.
+
+Test ˹the competence of˺ the orphans until they reach a marriageable age. Then if you feel they are capable of sound judgment, return their wealth to them. And do not consume it wastefully and hastily before they grow up ˹to demand it˺. If the guardian is well-off, they should not take compensation; but if the guardian is poor, let them take a reasonable provision. When you give orphans back their property, call in witnesses. [And sufficient is Allah as a ˹vigilant˺ Reckoner.](https://aleteia.org/2017/09/01/10-bible-verses-that-will-enable-you-to-place-your-problems-in-gods-hands/)
+
+
+ [![Gem Version](https://badge.fury.io/rb/jekyll-theme-hacker.svg)](https://badge.fury.io/rb/jekyll-theme-hacker)
+
+## Dear_Huma
+She got moves at comp time, but these niggas drain the shit out of her... No wonder her sexlife is so draining
+<iframe width="100%" height="502" src="https://www.youtube.com/embed/HKTLkUKnYV4" title="KASH DOLL Best Show SINCE NEWBORN BABY, TAY B & #1 FAN Crashes Set @ July 4th Weekend Detroit 2022" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="100%" height="502" src="https://www.youtube.com/embed/XJOKtclFErI" title="Tay B x Kash Doll - Like Woah (Official Video)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<hr>
+
+## I hope they ran that shit by Black Rob
+# GoDDAYMN_CLASSiKS_ONLY
+<iframe width="100%" height="458" src="https://www.youtube.com/embed/EC5LzftfcjI" title="Black Rob - Whoa! (Official Music Video)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+
+<iframe width="100%" height="502" src="https://www.youtube.com/embed/u9Uyhp26qnQ" title="227 Show Full Episode S1E04" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<hr>
+<iframe width="100%" height="380" src="https://www.youtube.com/embed/-18tkr36TbY" title="In Time" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<hr>
+## ቤት ለእንግዳ
+<iframe width="100%" height="502" src="https://www.youtube.com/embed/Gcilf9nnx8c" title="Ethiopian - ኪራይ ሰብሳቢ - new Ethiopian full movie - kiray sebsabi - this week 2022" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<hr>
+<iframe width="100%" height="502" src="https://www.youtube.com/embed/u9Uyhp26qnQ" title="227 Show Full Episode S1E04" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<hr>
+<iframe width="100%" height="380" src="https://www.youtube.com/embed/-18tkr36TbY" title="In Time" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<hr>
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/pw2meh9nDac" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<IMG src="https://i.pinimg.com/originals/0c/50/f6/0c50f6a8da2450a38c724c8311714393.jpg">
+
+[Fire and Ice (1983) - Ralph Bakshi / Frank Frazetta](https://www.youtube.com/watch?v=Z5Ndys7Ygcc)
+<iframe width="100%" height="315" src="https://www.youtube.com/embed/6yA9kkA9b6g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## LiNks_AbouT_TELEPATHY_
 <a href="https://slate.com/technology/2017/03/did-the-cia-really-astrally-project-to-mars-in-1984.html">##DID_THE_CIA##ASTRAL_PROJECT_TO_MARS</a>
 <a href="https://comicbook.com/irl/news/cia-documents-leak-extrasensory-perception-mind-telepathy-reveal/">##EXTRA_SENSORY_PERCEPTION##</a>
@@ -18,7 +77,7 @@
 <a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00787R000300180001-1.pdf"> ##EFFORTS_TO_IMPROVE_REMOTE_VIEWING##</a>
 <a href="https://www.cia.gov/readingroom/docs/NSA-RDP96X00790R000100040012-1.pdf"> ##TELEKINESIS## </a>
 <a href="https://www.cia.gov/readingroom/docs/CIA-RDP96-00792R000400100005-8.pdf"> PARAPSYCHOLOGY ##THE_ANGLOS_-->VS<--_THE_LATiNS##</a>
-<a href="https://www.cia.gov/readingroom/freedom-information-act-5-usc-%C2%A7552"> ##THE_SOCIAL_MEDIA_COMPANIES_VIOLATED##THE_FREEDOM_OF_INFORMATION_ACT_IN_SUPRESSING THE_SEARCH_FOR_THAKA_BEKELE_SELASSIE_aka_RASHARD_IMAN_KELLY_AHMEDs_FAMILY##</a>
+<a href="https://www.cia.gov/readingroom/freedom-information-act-5-usc-%C2%A7552"> ##THE_SOCIAL_MEDIA_COMPANIES VIOLATED##THE_FREEDOM_OF_INFORMATION_ACT IN_SUPRESSING THE_SEARCH_FOR_THAKA_BEKELE_SELASSIE aka RASHARD_IMAN_KELLY_AHMEDs_FAMILY##</a>
 <a href="http://www.wefunkradio.com/"> #### TUNE_IN --> WeFunK_RADIO [##STREAMING## ]</a> 
 <a href="http://www.wefunkradio.com/show/498/play_aa"> WeFunk_RADIO_BACK_EPISODE --> EPISODE_498] </a>
     
@@ -43,6 +102,7 @@ ERNEST_HEMMiNGWAY_and_SON_GREGORY_FiSHiNG
 
 <iframe width="100%" height="315" src="https://www.youtube.com/embed/V1Pl8CzNzCw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <hr>
+
 ## Dear Huma, Im afraid for Latto She be in santa monica a lot, I dont think ill ever see a dollar my family or anthing ever again
 <p class="codepen" data-height="300" data-default-tab="html,result" data-slug-hash="BaxjNXy" data-editable="true" data-user="thakasartu" style="height: 300px; box-sizing: border-box; display: flex; align-items: center; justify-content: center; border: 2px solid; margin: 1em 0; padding: 1em;">
   <span>See the Pen <a href="https://codepen.io/thakasartu/pen/BaxjNXy">
@@ -51,6 +111,69 @@ ERNEST_HEMMiNGWAY_and_SON_GREGORY_FiSHiNG
 </p>
 <script async src="https://cpwebassets.codepen.io/assets/embed/ei.js"></script>
 
+## ሳቲዚ ጀብዱዚ ሙና ዐሪካ ላራ ከሊላ
+[Marriage Practices Among The Gidda Oromo,Northern Wollega, Ethiopia](http://www.njas.helsinki.fi/pdf-files/vol15num3/beyene.pdf)	by [Gemechu Beyene](https://www.researchgate.net/scientific-contributions/Gemechu-Beyene-36094326) & [Assefa Tolera](https://www.semanticscholar.org/author/Assefa-Tolera/114598861)
+<img src="https://www.rct.uk/sites/default/files/styles/rctr-scale-1300-500/public/collection-online/e/5/1032675-1622115262.jpg?itok=gaFb1-Qp">
+
+### Three Types of Oromo Marriage
+Marriage is one of the most important rituals in Oromo culture. The custom of marriage differs in various parts of the world and every civilization produces a marriage pattern appropriate to itself (Ludlow, 1965, cited in Gemechu & Assefa., 2006). Among the Oromo society also the type, name and ceremonies differ to some degree from place to place. Generally, there are three types of marriage among the Oormo.
+
+## Brief piece by Tigist Geme*.
+
+Marriage is one of the most important rituals in Oromo culture. The custom of marriage differs in various parts of the world and every civilization produces a marriage pattern appropriate to itself (Ludlow, 1965, cited in Gemechu & Assefa., 2006). Among the Oromo society also the type, name and ceremonies differ to some degree from place to place. Generally, there are three types of marriage among the Oromo.
+
+### a) Formal marriage
+
+This type of marriage has different names in different parts of Oromia: ‘kadhaa’ (Nuro,1989), or fuudha baal-tokkee (Hussen 2000) around Arsi, ‘cida’ (Lemmesa, 2007) around Showa, and ‘Naqataa’ (Gemetchu & Assefa, 2006) in Wallaga. ‘Kadhaa’ or ‘naqataa’ is the most typical and prevalent form of marriage where the ceremony starts at the moment when marriage is first thought of and even continues after the marriage is concluded (Gemetchu & Assefa, 2006).
+
+Traditionally, it is arranged by family and before the match takes place, they make sure that the girl’s family does not have members who are lepers, chawa-clan, crafts men such as tanner, potter etc. The groom’s parents research back seven generations to make sure that the families are not related by blood, to avoid haraamuu or incest taboo. Once this has been done, the boy’s parents then make contact with the girl’s parents through a mediator. The girl’s parents often impose conditions and the mediator will take the message to the boys parents. When the parents have reached an agreement, the man and woman get engaged (betrothed). The parent then set a wedding date and they meet all the wedding expenses (Nuro,1989, Gemechu & Assefa 2006).
+
+### b) Informal Marriage
+
+## i) Hawwii
+
+According to Gemechu & Assefa (2006), this mode of marriage occurs when the boy happens to remain qeerroo (bachelor) for several reasons. Either because he is not handsome, or he is from a family of low social status, and therefore cannot pay the dowry. The boy has no consent of the family of the girl to wait long and to meet the financial and social demands of the girl’s parents. Sometimes, the girl’s mother is involved in arranging marriage of her daughter through hawwee. It is common among poor people. Youngsters resort to this kind of marriage after a lot of period of courtship that the boy approaches whom he thinks can keep secret to act on a go-between. There are places where the boy and the girl with their company can mostly wait each other. She signs an agreement saying that she was not taken against her will and she will be taken to one of the boy’s relatives until his parent prepares feast for marriage (Gemechu & Assefa2006, Nuro,1989), and that her parents are solemnly informed about her safety by elders.
+
+## ii) Buttaa/Butii
+
+This type of marriage takes of the following two forms. The first is when the girl has consented she is induced to be abducted. The second is accomplished by compulsion without any prior knowledge of the abduction (unlike the first form) on the part of the girl (Gemechu & Assefa, 2006).
+
+As Gemechu and Assefa point it out in their co-authored article on the Western Macca Oromo Marriage Style, marriage by abduction is taken as option when:
+
+- 1) a boy falls in love and she is not aware at all.
+
+- 2) a girl’s parent is affriad that their daoughter might agree to the proposed marriage,they consprice with the would be husband to take her by force.
+
+- 3) a girl’s parent are unwilling to agree to the proposed marriage, abduction would be resorted by boy’s family to show that they have a power to take her by force evenif her parents refused (Gemechu & Assefa, 2006; Nuro, 1989).
+
+This informal marriage was also observable among the Salale before the government intervention and the customary law became renewed in a way committed to preserving women’s right and security.
+
+## iii) Aseennaa
+
+This type of marriage employs peaceful, but cunning means. According to Nuro (1989), when a girl could not get anybody who seeks her hand in marriage because she may be an ugly or her parent has an evil eye “as said to be” by the society, she chooses anyone whom she thinks would marry her. And she directly goes to his parent’s house. Gemechu & Assefa (2006) also explained that, for a women to remain unmarried into her twenties is incomprehensible, though, she must go beyond herself, called aseennaa. Therefore, when a girl is left unmarried or when her father wants to give her to some one whom she does not like, she chooses unmarried young man and runs a way to his house withought the knoweledge of the man mostly in the evening.
+
+## iv) Conditional marriage
+
+This type of marriage depends on the occurrence of certain incidents.
+
+# a) Dhaala
+
+Dhaala is a type of marriage between a women and a brother of a deceased husband or levirate (Gemechu & Assefa 2006). Among such a patrilineal community where marriage secures children to perpetuate the father’s line, it is usual for widow to be inherited by a brother of a deceased husband (Nuro,1989).
+
+# b) Mambeeto (manbeeto)
+
+Its conditionality is the death of one’s wife. The younger sister or relative of the late wife would be given to the widower as soon as the first wife dies (Nuro, 1989). It is known as manbeeto or mambeeto among Arsi. Among the Oromo of Tulama and Macca it is known as hirpha, literally, to ‘compensate’.
+
+————————-
+
+*Tigist Geme is formerly a lecturer at Addis Ababa University. This article is an excerpt from her thesis titled “Themes and Patterns of Traditional Oromo Marriage Counseling” </p>	
+
+
+
+<img src="https://ilr.law.uiowa.edu/print/volume-99-issue-3/how-to-lie-with-rape-statistics-americas-hidden-rape-crisis/">
+<img src="https://forum.12ozprophet.com/uploads/monthly_2020_04/image.png.14c87c06fc77f757887ae34cc3cd8be0.png">
+
+<hr>
 ## Dear HuMa
 This got me stalked...
 ### Severe acute respiratory syndrome coronavirus - Patent US
